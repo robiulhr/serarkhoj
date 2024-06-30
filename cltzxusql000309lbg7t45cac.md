@@ -50,7 +50,14 @@ ogImage: https://cdn.hashnode.com/res/hashnode/image/upload/v1710946631495/ca1ae
 
 এই বইটি সংগ্রহ করুনঃ
 
-%[https://rkmri.co/lSISAeMeSEyN/] 
+---
+
+<div data-node-type="callout">
+<div data-node-type="callout-emoji">💡</div>
+<div data-node-type="callout-text"><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/MEMmeeME0mMI/" style="pointer-events: none"><strong>সংগ্রহ করতে এখানে ক্লিক করুণ</strong></a><strong> --&gt; </strong><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/MEMmeeME0mMI/" style="pointer-events: none"><strong><mark>Buy Now (কিনুন)</mark></strong></a></div>
+</div>
+
+---
 
 ## ২৪ ঘণ্টায় কুরআন শিক্ষা-কালার পেইজ
 
@@ -68,7 +75,14 @@ ogImage: https://cdn.hashnode.com/res/hashnode/image/upload/v1710946631495/ca1ae
 
 এই বইটি সংগ্রহ করুনঃ
 
-%[https://rkmri.co/e3MoT0Ml25SE/] 
+---
+
+<div data-node-type="callout">
+<div data-node-type="callout-emoji">💡</div>
+<div data-node-type="callout-text"><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/5SlES2m53ApA/" style="pointer-events: none"><strong>সংগ্রহ করতে এখানে ক্লিক করুণ</strong></a><strong> --&gt; </strong><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/5SlES2m53ApA/" style="pointer-events: none"><strong><mark>Buy Now (কিনুন)</mark></strong></a></div>
+</div>
+
+---
 
 ## নূরানী পদ্ধতিতে কুরআন শিক্ষা
 
@@ -90,7 +104,14 @@ ogImage: https://cdn.hashnode.com/res/hashnode/image/upload/v1710946631495/ca1ae
 
 এই বইটি সংগ্রহ করুনঃ
 
-%[https://rkmri.co/A2lA2eelIMeA/] 
+---
+
+<div data-node-type="callout">
+<div data-node-type="callout-emoji">💡</div>
+<div data-node-type="callout-text"><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/2eSeNm2NAI3e/" style="pointer-events: none"><strong>সংগ্রহ করতে এখানে ক্লিক করুণ</strong></a><strong> --&gt; </strong><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/2eSeNm2NAI3e/" style="pointer-events: none"><strong><mark>Buy Now (কিনুন)</mark></strong></a></div>
+</div>
+
+---
 
 ## সহীহ কুরআন শিক্ষা পদ্ধতি
 
@@ -108,4 +129,11 @@ ogImage: https://cdn.hashnode.com/res/hashnode/image/upload/v1710946631495/ca1ae
 
 এই বইটি সংগ্রহ করুনঃ
 
-%[https://rkmri.co/0y55eAA53RlS/]
+---
+
+<div data-node-type="callout">
+<div data-node-type="callout-emoji">💡</div>
+<div data-node-type="callout-text"><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/2mpA0yMIN0NE/" style="pointer-events: none"><strong>সংগ্রহ করতে এখানে ক্লিক করুণ</strong></a><strong> --&gt; </strong><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/2mpA0yMIN0NE/" style="pointer-events: none"><strong><mark>Buy Now (কিনুন)</mark></strong></a></div>
+</div>
+
+---
