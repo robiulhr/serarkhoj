@@ -46,11 +46,25 @@ ogImage: https://cdn.hashnode.com/res/hashnode/image/upload/v1710767661837/0ed17
 
 আল কুরআনের এই অনুবাদের সম্পূর্ণ টি এক খন্ডে সংগ্রহ করুনঃ
 
-%[https://rkmri.co/yMAmSelTTRpS/] 
+---
+
+<div data-node-type="callout">
+<div data-node-type="callout-emoji">💡</div>
+<div data-node-type="callout-text"><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/ITlN33mMe3TT/" style="pointer-events: none"><strong>সংগ্রহ করতে এখানে ক্লিক করুণ</strong></a><strong> --&gt; </strong><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/ITlN33mMe3TT/" style="pointer-events: none"><strong><mark>Buy Now (কিনুন)</mark></strong></a></div>
+</div>
+
+---
 
 যারা এই অনুবাদটি একাধিক ছোট ছোট খন্ডে সংগ্রহ করতে চান তারা সংগ্রহ করুনঃ
 
-%[https://rkmri.co/eTleNeT3Rp3R/] 
+---
+
+<div data-node-type="callout">
+<div data-node-type="callout-emoji">💡</div>
+<div data-node-type="callout-text"><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/RlARemSSAAeM/" style="pointer-events: none"><strong>সংগ্রহ করতে এখানে ক্লিক করুণ</strong></a><strong> --&gt; </strong><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/RlARemSSAAeM/" style="pointer-events: none"><strong><mark>Buy Now (কিনুন)</mark></strong></a></div>
+</div>
+
+---
 
 ## ২। উচ্চারনের ওপর প্রাধান্য
 
@@ -74,7 +88,14 @@ ogImage: https://cdn.hashnode.com/res/hashnode/image/upload/v1710767661837/0ed17
 
 আল কুরআনের এই অনুবাদটি সংগ্রহ করুনঃ
 
-%[https://rkmri.co/E2A2TImRTeN2/] 
+---
+
+<div data-node-type="callout">
+<div data-node-type="callout-emoji">💡</div>
+<div data-node-type="callout-text"><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/ENMEMy3M0elE/" style="pointer-events: none"><strong>সংগ্রহ করতে এখানে ক্লিক করুণ</strong></a><strong> --&gt; </strong><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/ENMEMy3M0elE/" style="pointer-events: none"><strong><mark>Buy Now (কিনুন)</mark></strong></a></div>
+</div>
+
+---
 
 ### কালার কোডেড উচ্চারণ ও অনুবাদ সহ সহজ কোরআন
 
@@ -92,7 +113,14 @@ ogImage: https://cdn.hashnode.com/res/hashnode/image/upload/v1710767661837/0ed17
 
 আল কুরআনের এই অনুবাদটি সংগ্রহ করুনঃ
 
-%[https://rkmri.co/I323moEe2eeI/] 
+---
+
+<div data-node-type="callout">
+<div data-node-type="callout-emoji">💡</div>
+<div data-node-type="callout-text"><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/l5pSNleISN3m/" style="pointer-events: none"><strong>সংগ্রহ করতে এখানে ক্লিক করুণ</strong></a><strong> --&gt; </strong><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/l5pSNleISN3m/" style="pointer-events: none"><strong><mark>Buy Now (কিনুন)</mark></strong></a></div>
+</div>
+
+---
 
 ## ৩। ব্যাখ্যার ওপর প্রাধান্য
 
@@ -112,7 +140,14 @@ ogImage: https://cdn.hashnode.com/res/hashnode/image/upload/v1710767661837/0ed17
 
 আল কুরআনের এই অনুবাদটি সংগ্রহ করুনঃ
 
-%[https://rkmri.co/yyRE2M0El2Nm/] 
+---
+
+<div data-node-type="callout">
+<div data-node-type="callout-emoji">💡</div>
+<div data-node-type="callout-text"><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/MeoEeEASR2eR/" style="pointer-events: none"><strong>সংগ্রহ করতে এখানে ক্লিক করুণ</strong></a><strong> --&gt; </strong><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/MeoEeEASR2eR/" style="pointer-events: none"><strong><mark>Buy Now (কিনুন)</mark></strong></a></div>
+</div>
+
+---
 
 ### তাফহীমুল কুরআন
 
@@ -128,11 +163,18 @@ ogImage: https://cdn.hashnode.com/res/hashnode/image/upload/v1710767661837/0ed17
 
 আল কুরআনের এই অনুবাদটির সবগুলো খন্ড একত্রে সংগ্রহ করুনঃ
 
-%[https://rkmri.co/EE0N0pAp3e3A/] 
+---
+
+<div data-node-type="callout">
+<div data-node-type="callout-emoji">💡</div>
+<div data-node-type="callout-text"><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/5ReTESSppmeM/" style="pointer-events: none"><strong>সংগ্রহ করতে এখানে ক্লিক করুণ</strong></a><strong> --&gt; </strong><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/5ReTESSppmeM/" style="pointer-events: none"><strong><mark>Buy Now (কিনুন)</mark></strong></a></div>
+</div>
+
+---
 
 আল কুরআনের এই অনুবাদটির খন্ডগুলো পৃথকভাবে সংগ্রহ করুতে লিংক এ click করুনঃ
 
-[**১ম খন্ড**](https://rkmri.co/MImy0RmEe5NR/) **|** [**২য় খন্ড**](https://rkmri.co/l2ASI2NITeA3/) **|** [**৩য় খন্ড**](https://rkmri.co/MSNp0y0ASlMl/) **|** [**৪র্থ *খন্ড***](https://rkmri.co/MMA55MM52eSm/) **|** [**৫ম খন্ড**](https://rkmri.co/NMSM2lmeeNoe/) **|** [**৬ষ্ঠ খন্ড**](https://rkmri.co/AIMSemMlmyIl/) **|** [**৭ম খন্ড**](https://rkmri.co/SNMelEoM5ASE/) **|** [**৮ম খন্ড**](https://rkmri.co/peApMSTNE30T/) **|** [**৯ম খন্ড**](https://rkmri.co/leAl2ME3AeTE/) **|** [**১০ম খন্ড**](https://rkmri.co/5oRTeA5m5eMe/) **|** [**১১তম খন্ড**](https://rkmri.co/5N0ASEeNTAee/) **|** [**১২তম খন্ড**](https://rkmri.co/0IRNTAEm5MpM/) **|** [**১৩তম খন্ড**](https://rkmri.co/IeMoNpNeIyRo/) **|** [**১৪তম খন্ড**](https://rkmri.co/IeymeeSpRENe/) **|** [**১৫তম খন্ড**](https://rkmri.co/lIAeSpMSlA3N/) **|** [**১৬তম খন্ড**](https://rkmri.co/eRmpM3IA0mEe/) **|** [**১৭তম খন্ড**](https://rkmri.co/epoRANpREe5R/) **|** [**১৮তম খন্ড**](https://rkmri.co/Ey5ANpAeMeIe/) **|** [**১৯তম খন্ড**](https://rkmri.co/ReTM3eoIMooM/)
+[**১ম খন্ড**](https://rkmri.co/MImy0RmEe5NR/)**|**[**২য় খন্ড**](https://rkmri.co/l2ASI2NITeA3/)**|**[**৩য় খন্ড**](https://rkmri.co/MSNp0y0ASlMl/)**|**[**৪র্থ *খন্ড***](https://rkmri.co/MMA55MM52eSm/)**|**[**৫ম খন্ড**](https://rkmri.co/NMSM2lmeeNoe/)**|**[**৬ষ্ঠ খন্ড**](https://rkmri.co/AIMSemMlmyIl/)**|**[**৭ম খন্ড**](https://rkmri.co/SNMelEoM5ASE/)**|**[**৮ম খন্ড**](https://rkmri.co/peApMSTNE30T/)**|**[**৯ম খন্ড**](https://rkmri.co/leAl2ME3AeTE/)**|**[**১০ম খন্ড**](https://rkmri.co/5oRTeA5m5eMe/)**|**[**১১তম খন্ড**](https://rkmri.co/5N0ASEeNTAee/)**|**[**১২তম খন্ড**](https://rkmri.co/0IRNTAEm5MpM/)**|**[**১৩তম খন্ড**](https://rkmri.co/IeMoNpNeIyRo/)**|**[**১৪তম খন্ড**](https://rkmri.co/IeymeeSpRENe/)**|**[**১৫তম খন্ড**](https://rkmri.co/lIAeSpMSlA3N/)**|**[**১৬তম খন্ড**](https://rkmri.co/eRmpM3IA0mEe/)**|**[**১৭তম খন্ড**](https://rkmri.co/epoRANpREe5R/)**|**[**১৮তম খন্ড**](https://rkmri.co/Ey5ANpAeMeIe/)**|**[**১৯তম খন্ড**](https://rkmri.co/ReTM3eoIMooM/)
 
 > যারা প্রথমবারের মত কোরআন এর অনুবাদ সহ পড়বেন তাদের জন্য এর আগের অনুবাদটি অধিক উপযুক্ত হবে বলে আমার ধারণা।
 
@@ -152,8 +194,15 @@ ogImage: https://cdn.hashnode.com/res/hashnode/image/upload/v1710767661837/0ed17
 
 আল কুরআনের এই অনুবাদটির সবগুলো খন্ড একত্রে সংগ্রহ করুনঃ
 
-%[https://rkmri.co/lRMyeSMAMep3/] 
+---
+
+<div data-node-type="callout">
+<div data-node-type="callout-emoji">💡</div>
+<div data-node-type="callout-text"><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/RoeRooe22MTe/" style="pointer-events: none"><strong>সংগ্রহ করতে এখানে ক্লিক করুণ</strong></a><strong> --&gt; </strong><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/RoeRooe22MTe/" style="pointer-events: none"><strong><mark>Buy Now (কিনুন)</mark></strong></a></div>
+</div>
+
+---
 
 আল কুরআনের এই অনুবাদটির খন্ডগুলো পৃথকভাবে সংগ্রহ করুনঃ
 
-[**১ম খন্ড**](https://rkmri.co/2SeSle3TElA5/) **|** [**২য় খন্ড**](https://rkmri.co/mERESTmAo23A/) **|** [**৩য় খন্ড**](https://rkmri.co/p3oem2eEpTeI/) **|** [**৪র্থ *খন্ড***](https://rkmri.co/3TTe5eyyM3Ty/) **|** [**৫ম খন্ড**](https://rkmri.co/REEeM55mA3y5/) **|** [**৬ষ্ঠ খন্ড**](https://rkmri.co/RRmeMoE2l5py/) [](https://rkmri.co/AIMSemMlmyIl/)**|** [**৭ম খন্ড**](https://rkmri.co/TpSeeM0TEeoM/) [](https://rkmri.co/SNMelEoM5ASE/)**|** [**৮ম খন্ড**](https://rkmri.co/EM3I3oTlAyNe/) **|** [**৯ম খন্ড**](https://rkmri.co/25EmRm0ES2m3/) **|** [**১০ম খন্ড**](https://rkmri.co/eIe5op2mASoN/) **|** [**১১তম খন্ড**](https://rkmri.co/yeTeNypMMAoR/) **|** [**১২তম খন্ড**](https://rkmri.co/I2epISSemA2e/) **|** [**১৩তম খন্ড**](https://rkmri.co/AA0mopelRloT/) **|** [**১৪তম খন্ড**](https://rkmri.co/33pyTMeeeIoo/)
+[**১ম খন্ড**](https://rkmri.co/2SeSle3TElA5/)**|**[**২য় খন্ড**](https://rkmri.co/mERESTmAo23A/)**|**[**৩য় খন্ড**](https://rkmri.co/p3oem2eEpTeI/)**|**[**৪র্থ *খন্ড***](https://rkmri.co/3TTe5eyyM3Ty/)**|**[**৫ম খন্ড**](https://rkmri.co/REEeM55mA3y5/)**|**[**৬ষ্ঠ খন্ড**](https://rkmri.co/RRmeMoE2l5py/)**|**[**৭ম খন্ড**](https://rkmri.co/TpSeeM0TEeoM/)**|**[**৮ম খন্ড**](https://rkmri.co/EM3I3oTlAyNe/)**|**[**৯ম খন্ড**](https://rkmri.co/25EmRm0ES2m3/)**|**[**১০ম খন্ড**](https://rkmri.co/eIe5op2mASoN/)**|**[**১১তম খন্ড**](https://rkmri.co/yeTeNypMMAoR/)**|**[**১২তম খন্ড**](https://rkmri.co/I2epISSemA2e/)**|**[**১৩তম খন্ড**](https://rkmri.co/AA0mopelRloT/)**|**[**১৪তম খন্ড**](https://rkmri.co/33pyTMeeeIoo/)
