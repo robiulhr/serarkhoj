@@ -56,7 +56,7 @@ ogImage: https://cdn.hashnode.com/res/hashnode/image/upload/v1711203965302/c0715
 
 > <div data-node-type="callout">
 > <div data-node-type="callout-emoji">💡</div>
-> <div data-node-type="callout-text"><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/p3N0TMMpyeRe/" style="pointer-events: none"><mark>এই বইটি সংগ্রহ করুণ</mark></a> --&gt; <a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/p3N0TMMpyeRe/" style="pointer-events: none">এখানে Click করুন</a></div>
+> <div data-node-type="callout-text"><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/p3N0TMMpyeRe/" style="pointer-events: none"><strong>বইটি সংগ্রহ করতে এখানে ক্লিক করুণ</strong></a><strong> --&gt; </strong><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/p3N0TMMpyeRe/" style="pointer-events: none"><strong><mark>Buy Now (কিনুন)</mark></strong></a></div>
 > </div>
 
 ---
@@ -81,7 +81,7 @@ ogImage: https://cdn.hashnode.com/res/hashnode/image/upload/v1711203965302/c0715
 
 <div data-node-type="callout">
 <div data-node-type="callout-emoji">💡</div>
-<div data-node-type="callout-text"><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/p3ESAeeee0yI/" style="pointer-events: none"><mark>এই বইটি সংগ্রহ করুণ</mark></a> --&gt; <a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/p3ESAeeee0yI/" style="pointer-events: none">এখানে Click করুন</a></div>
+<div data-node-type="callout-text"><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/p3ESAeeee0yI/" style="pointer-events: none"><strong>বইটি সংগ্রহ করতে এখানে ক্লিক করুণ</strong></a><strong> --&gt; </strong><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/p3ESAeeee0yI/" style="pointer-events: none"><strong><mark>Buy Now (কিনুন)</mark></strong></a></div>
 </div>
 
 ---
