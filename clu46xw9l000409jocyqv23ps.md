@@ -54,7 +54,7 @@ ogImage: https://cdn.hashnode.com/res/hashnode/image/upload/v1711203965302/c0715
 
 এই বইটি সংগ্রহ করুনঃ
 
-%[https://rkmri.co/eeMAmM2lpMeN/] 
+%[https://rkmri.co/p3N0TMMpyeRe/] 
 
 ## আর রাহিকুল মাখতুম (সমকালীন প্রকাশন)
 
@@ -72,7 +72,7 @@ ogImage: https://cdn.hashnode.com/res/hashnode/image/upload/v1711203965302/c0715
 
 এছাড়া বাকি সব দিক যেমন বইটির ছাপা, পৃষ্ঠা, বইটির ডিজাইন সবকিছুই অনেক ভালো ও মানসম্মত।
 
-%[https://rkmri.co/00mA0TppmNee/] 
+%[https://rkmri.co/p3ESAeeee0yI/] 
 
 ## বই দুটির মুখোমুখি তুলনা
 
