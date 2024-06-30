@@ -55,7 +55,14 @@ ogImage: https://cdn.hashnode.com/res/hashnode/image/upload/v1711813210856/4b601
 
 আরিফ আজাদের লেখা বইসমূহ একসাথে সংগ্রহ করুণঃ
 
-%[https://rkmri.co/5SSoIyEeeeMM/] 
+---
+
+<div data-node-type="callout">
+<div data-node-type="callout-emoji">💡</div>
+<div data-node-type="callout-text"><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/ATpRAoIMA2Ep/" style="pointer-events: none"><strong>সংগ্রহ করতে এখানে ক্লিক করুণ</strong></a><strong> --&gt; </strong><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/ATpRAoIMA2Ep/" style="pointer-events: none"><strong><mark>Buy Now (কিনুন)</mark></strong></a></div>
+</div>
+
+---
 
 ## প্যারাডক্সিক্যাল সাজিদ ১ এবং ২
 
@@ -89,19 +96,47 @@ ogImage: https://cdn.hashnode.com/res/hashnode/image/upload/v1711813210856/4b601
 
 প্যারাডক্সিক্যাল সাজিদ ১ বইটি সংগ্রহ করুনঃ
 
-%[https://rkmri.co/5M5eAl3eMMeo/] 
+---
+
+<div data-node-type="callout">
+<div data-node-type="callout-emoji">💡</div>
+<div data-node-type="callout-text"><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/R0AeTNIeElo5/" style="pointer-events: none"><strong>সংগ্রহ করতে এখানে ক্লিক করুণ</strong></a><strong> --&gt; </strong><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/R0AeTNIeElo5/" style="pointer-events: none"><strong><mark>Buy Now (কিনুন)</mark></strong></a></div>
+</div>
+
+---
 
 প্যারাডক্সিক্যাল সাজিদ ১ বইটির ইংরেজি অনুবাদটি সংগ্রহ করুনঃ
 
-%[https://rkmri.co/3TpAIm5yTIpT/] 
+---
+
+<div data-node-type="callout">
+<div data-node-type="callout-emoji">💡</div>
+<div data-node-type="callout-text"><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/eAeSS3E2MRR3/" style="pointer-events: none"><strong>সংগ্রহ করতে এখানে ক্লিক করুণ</strong></a><strong> --&gt; </strong><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/eAeSS3E2MRR3/" style="pointer-events: none"><strong><mark>Buy Now (কিনুন)</mark></strong></a></div>
+</div>
+
+---
 
 প্যারাডক্সিক্যাল সাজিদ ২ বইটি সংগ্রহ করুনঃ
 
-%[https://rkmri.co/Me5e3mlA3e2A/] 
+---
+
+<div data-node-type="callout">
+<div data-node-type="callout-emoji">💡</div>
+<div data-node-type="callout-text"><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/2IIeE2TmR3R0/" style="pointer-events: none"><strong>সংগ্রহ করতে এখানে ক্লিক করুণ</strong></a><strong> --&gt; </strong><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/2IIeE2TmR3R0/" style="pointer-events: none"><strong><mark>Buy Now (কিনুন)</mark></strong></a></div>
+</div>
+
+---
 
 প্যারাডক্সিক্যাল সাজিদ ১ ও ২ বই দুটি একত্রে সংগ্রহ করুনঃ
 
-%[https://rkmri.co/Ae2MR5NeIATe/] 
+---
+
+<div data-node-type="callout">
+<div data-node-type="callout-emoji">💡</div>
+<div data-node-type="callout-text"><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/0MemEM3eeIpN/" style="pointer-events: none"><strong>সংগ্রহ করতে এখানে ক্লিক করুণ</strong></a><strong> --&gt; </strong><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/0MemEM3eeIpN/" style="pointer-events: none"><strong><mark>Buy Now (কিনুন)</mark></strong></a></div>
+</div>
+
+---
 
 ## জীবনের জাগরণ সিরিজ
 
@@ -120,7 +155,14 @@ ogImage: https://cdn.hashnode.com/res/hashnode/image/upload/v1711813210856/4b601
 
 জীবনের জাগরণ সিরিজের তিনটি বই একসাথে সংগ্রহ করুনঃ
 
-%[https://rkmri.co/lM2AoImepR5E/] 
+---
+
+<div data-node-type="callout">
+<div data-node-type="callout-emoji">💡</div>
+<div data-node-type="callout-text"><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/eR50SRIM5elI/" style="pointer-events: none"><strong>সংগ্রহ করতে এখানে ক্লিক করুণ</strong></a><strong> --&gt; </strong><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/eR50SRIM5elI/" style="pointer-events: none"><strong><mark>Buy Now (কিনুন)</mark></strong></a></div>
+</div>
+
+---
 
 ### বেলা ফুরাবার আগে
 
@@ -148,7 +190,14 @@ ogImage: https://cdn.hashnode.com/res/hashnode/image/upload/v1711813210856/4b601
 
 বেলা ফুরাবার আগে বইটি সংগ্রহ করুনঃ
 
-%[https://rkmri.co/A0yeIe33eM3o/] 
+---
+
+<div data-node-type="callout">
+<div data-node-type="callout-emoji">💡</div>
+<div data-node-type="callout-text"><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/eRTeemSomNNN/" style="pointer-events: none"><strong>সংগ্রহ করতে এখানে ক্লিক করুণ</strong></a><strong> --&gt; </strong><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/eRTeemSomNNN/" style="pointer-events: none"><strong><mark>Buy Now (কিনুন)</mark></strong></a></div>
+</div>
+
+---
 
 ### এবার ভিন্ন কিছু হোক
 
@@ -166,7 +215,14 @@ ogImage: https://cdn.hashnode.com/res/hashnode/image/upload/v1711813210856/4b601
 
 এবার ভিন্ন কিছু হোক বইটি সংগ্রহ করুনঃ
 
-%[https://rkmri.co/ASNlImT53Ape/] 
+---
+
+<div data-node-type="callout">
+<div data-node-type="callout-emoji">💡</div>
+<div data-node-type="callout-text"><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/A30TA0eeTlEy/" style="pointer-events: none"><strong>সংগ্রহ করতে এখানে ক্লিক করুণ</strong></a><strong> --&gt; </strong><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/A30TA0eeTlEy/" style="pointer-events: none"><strong><mark>Buy Now (কিনুন)</mark></strong></a></div>
+</div>
+
+---
 
 ### হায়াতের দিন ফুরোলে
 
@@ -188,7 +244,14 @@ ogImage: https://cdn.hashnode.com/res/hashnode/image/upload/v1711813210856/4b601
 
 হায়াতের দিন ফুরোলে বইটি সংগ্রহ করুনঃ
 
-%[https://rkmri.co/pERMy2lo2yE2/] 
+---
+
+<div data-node-type="callout">
+<div data-node-type="callout-emoji">💡</div>
+<div data-node-type="callout-text"><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/MEIeIAeATpoN/" style="pointer-events: none"><strong>সংগ্রহ করতে এখানে ক্লিক করুণ</strong></a><strong> --&gt; </strong><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/MEIeIAeATpoN/" style="pointer-events: none"><strong><mark>Buy Now (কিনুন)</mark></strong></a></div>
+</div>
+
+---
 
 ## আরজ আলী সমীপে
 
@@ -238,7 +301,14 @@ ogImage: https://cdn.hashnode.com/res/hashnode/image/upload/v1711813210856/4b601
 
 আরজ আলী সমীপে বইটি সংগ্রহ করুনঃ
 
-%[https://rkmri.co/pTRmA3MeeeSS/] 
+---
+
+<div data-node-type="callout">
+<div data-node-type="callout-emoji">💡</div>
+<div data-node-type="callout-text"><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/ee5lp5eI3IIe/" style="pointer-events: none"><strong>সংগ্রহ করতে এখানে ক্লিক করুণ</strong></a><strong> --&gt; </strong><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/ee5lp5eI3IIe/" style="pointer-events: none"><strong><mark>Buy Now (কিনুন)</mark></strong></a></div>
+</div>
+
+---
 
 ## নবি জীবনের গল্প
 
@@ -264,7 +334,14 @@ ogImage: https://cdn.hashnode.com/res/hashnode/image/upload/v1711813210856/4b601
 
 নবি জীবনের গল্প বইটি সংগ্রহ করুনঃ
 
-%[https://rkmri.co/l335yeeANARE/] 
+---
+
+<div data-node-type="callout">
+<div data-node-type="callout-emoji">💡</div>
+<div data-node-type="callout-text"><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/3IeMlAm22NS3/" style="pointer-events: none"><strong>সংগ্রহ করতে এখানে ক্লিক করুণ</strong></a><strong> --&gt; </strong><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/3IeMlAm22NS3/" style="pointer-events: none"><strong><mark>Buy Now (কিনুন)</mark></strong></a></div>
+</div>
+
+---
 
 ## জীবন যেখানে যেমন
 
@@ -294,7 +371,14 @@ ogImage: https://cdn.hashnode.com/res/hashnode/image/upload/v1711813210856/4b601
 
 জীবন যেখানে যেমন বইটি সংগ্রহ করুনঃ
 
-%[https://rkmri.co/e0Tlyp0MSRe2/] 
+---
+
+<div data-node-type="callout">
+<div data-node-type="callout-emoji">💡</div>
+<div data-node-type="callout-text"><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/MEI3MEM50NmM/" style="pointer-events: none"><strong>সংগ্রহ করতে এখানে ক্লিক করুণ</strong></a><strong> --&gt; </strong><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/MEI3MEM50NmM/" style="pointer-events: none"><strong><mark>Buy Now (কিনুন)</mark></strong></a></div>
+</div>
+
+---
 
 ## কুরআন থেকে নেওয়া জীবনের পাঠ
 
@@ -322,4 +406,11 @@ ogImage: https://cdn.hashnode.com/res/hashnode/image/upload/v1711813210856/4b601
 
 কুরআন থেকে নেওয়া জীবনের পাঠ বইটি সংগ্রহ করুনঃ
 
-%[https://rkmri.co/NlN53MA5NNTp/]
+---
+
+<div data-node-type="callout">
+<div data-node-type="callout-emoji">💡</div>
+<div data-node-type="callout-text"><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/SM5II5pSme3A/" style="pointer-events: none"><strong>সংগ্রহ করতে এখানে ক্লিক করুণ</strong></a><strong> --&gt; </strong><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/SM5II5pSme3A/" style="pointer-events: none"><strong><mark>Buy Now (কিনুন)</mark></strong></a></div>
+</div>
+
+---
