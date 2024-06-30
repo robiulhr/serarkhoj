@@ -72,9 +72,14 @@ ogImage: https://cdn.hashnode.com/res/hashnode/image/upload/v1713668757705/020e1
 > 
 > এজন্য সাবধানতা অবলম্বন করতে এবং এরকম অনাকাঙ্ক্ষিত দুর্ঘটনা এড়াতে পরীক্ষার হলে এই ক্যালকুলেটর টি নিয়ে যাওয়া উচিত। এমনকি এর উপরের কোন মডেলের ক্যালকুলেটর নিয়ে গেলেও সম্ভব হলে আরো একটি fx-100MS এর ক্যালকুলেটর নিয়ে যাওয়া উচিত।
 
-এই ক্যালকুলেটর টি সংগ্রহ করুনঃ
+---
 
-%[https://rkmri.co/emeTIoEAApIl/] 
+<div data-node-type="callout">
+<div data-node-type="callout-emoji">💡</div>
+<div data-node-type="callout-text"><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/SMS0IeR5A0e0/" style="pointer-events: none"><strong>সংগ্রহ করতে এখানে ক্লিক করুণ</strong></a><strong> --&gt; </strong><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/SMS0IeR5A0e0/" style="pointer-events: none"><strong><mark>Buy Now (কিনুন)</mark></strong></a></div>
+</div>
+
+---
 
 ## Casio Scientific Calculator (2nd edition) Black - fx-991ES Plus-2
 
@@ -90,9 +95,14 @@ ogImage: https://cdn.hashnode.com/res/hashnode/image/upload/v1713668757705/020e1
 
 এটিতে একটি পাওয়ারফুল ব্যাটারির পাশাপাশি সোলার সিস্টেম ও রাখা হয়েছে। এটির সোলার প্যানেল টি সূর্যের আলোর উপস্থিতিতে শক্তি জেনারেট করতে পারে এবং সেই শক্তি দিয়ে ক্যালকুলেটর টি চলে আবার যখন সূর্যের আলো না থাকে তখন এটি ব্যাটারি থেকে শক্তি নিয়ে চলে। যেটি একটি ক্যালকুলেটর এর জন্য একটি অনেক বড় বিষয়।
 
-এই ক্যালকুলেটর টি সংগ্রহ করুনঃ
+---
 
-%[https://rkmri.co/eMMoST02IEA5/] 
+<div data-node-type="callout">
+<div data-node-type="callout-emoji">💡</div>
+<div data-node-type="callout-text"><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/I2y0IeyoR5e3/" style="pointer-events: none"><strong>সংগ্রহ করতে এখানে ক্লিক করুণ</strong></a><strong> --&gt; </strong><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/I2y0IeyoR5e3/" style="pointer-events: none"><strong><mark>Buy Now (কিনুন)</mark></strong></a></div>
+</div>
+
+---
 
 ## Casio Scientific Calculator - (fx-991EX)
 
@@ -112,12 +122,22 @@ ogImage: https://cdn.hashnode.com/res/hashnode/image/upload/v1713668757705/020e1
 
 এছাড়া ব্যাটারি, সোলার ব্যাটারি ও অন্যান্য বিষয় গুলোতে তেমন বেশি একটা চেঞ্জ আনা হয়নি।
 
-এই ক্যালকুলেটর টি সংগ্রহ করুনঃ
+---
 
-%[https://rkmri.co/TIeSS5E0AAlN/] 
+<div data-node-type="callout">
+<div data-node-type="callout-emoji">💡</div>
+<div data-node-type="callout-text"><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/TE5eepAT02po/" style="pointer-events: none"><strong>সংগ্রহ করতে এখানে ক্লিক করুণ</strong></a><strong> --&gt; </strong><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/TE5eepAT02po/" style="pointer-events: none"><strong><mark>Buy Now (কিনুন)</mark></strong></a></div>
+</div>
+
+---
 
 > বিঃদ্রঃ খুব রিসেন্টলি casio বাজারে Casio (fx-991 CW) Scientific Calculator- Black নামে একটি নতুন ক্যালকুলেটর নিয়ে এসেছে। এটি এখন পর্যন্ত সবচেয়ে বেশি পাওয়ারফুল ও ফিচার সমৃদ্ধ। তবে সমস্যা হল এই ক্যালকুলেটর টি এখনো খুব বেশি পরিচিতি পায় নি। সেক্ষেত্রে এটি পরীক্ষা হলে আটকে দেওয়ার আশংক্ষা রয়ে যায়। তাই এটি কেনার আগে ভালভাবে এ বিষয়ে খোঁজ খবর নিয়ে তারপর এটি কেনা উচিৎ।
 > 
-> এই ক্যালকুলেটর টি সংগ্রহ করুনঃ
+> ---
 > 
-> %[https://rkmri.co/32ymeeym5S2T/]
+> <div data-node-type="callout">
+> <div data-node-type="callout-emoji">💡</div>
+> <div data-node-type="callout-text"><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/2e02530y3ANe/" style="pointer-events: none"><strong>সংগ্রহ করতে এখানে ক্লিক করুণ</strong></a><strong> --&gt; </strong><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/2e02530y3ANe/" style="pointer-events: none"><strong><mark>Buy Now (কিনুন)</mark></strong></a></div>
+> </div>
+> 
+> ---
