@@ -52,9 +52,14 @@ ogImage: https://cdn.hashnode.com/res/hashnode/image/upload/v1711203965302/c0715
 
 এছাড়া বাকি সব দিক যেমন বইটির ছাপা, পৃষ্ঠা, বইটির ডিজাইন সবকিছুই অনেক ভালো ও মানসম্মত।
 
-এই বইটি সংগ্রহ করুনঃ
+---
 
-%[https://rkmri.co/p3N0TMMpyeRe/] 
+> <div data-node-type="callout">
+> <div data-node-type="callout-emoji">💡</div>
+> <div data-node-type="callout-text"><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/p3N0TMMpyeRe/" style="pointer-events: none"><mark>এই বইটি সংগ্রহ করুণ</mark></a> --&gt; <a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/p3N0TMMpyeRe/" style="pointer-events: none">এখানে Click করুন</a></div>
+> </div>
+
+---
 
 ## আর রাহিকুল মাখতুম (সমকালীন প্রকাশন)
 
@@ -72,7 +77,14 @@ ogImage: https://cdn.hashnode.com/res/hashnode/image/upload/v1711203965302/c0715
 
 এছাড়া বাকি সব দিক যেমন বইটির ছাপা, পৃষ্ঠা, বইটির ডিজাইন সবকিছুই অনেক ভালো ও মানসম্মত।
 
-%[https://rkmri.co/p3ESAeeee0yI/] 
+---
+
+<div data-node-type="callout">
+<div data-node-type="callout-emoji">💡</div>
+<div data-node-type="callout-text"><a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/p3ESAeeee0yI/" style="pointer-events: none"><mark>এই বইটি সংগ্রহ করুণ</mark></a> --&gt; <a target="_blank" rel="noopener noreferrer nofollow" href="https://rkmri.co/p3ESAeeee0yI/" style="pointer-events: none">এখানে Click করুন</a></div>
+</div>
+
+---
 
 ## বই দুটির মুখোমুখি তুলনা
 
